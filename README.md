@@ -1,1 +1,1 @@
-Silahkan beri star/bintang, Jika anda mencurinya:)
+Please to give us ⭐ 
